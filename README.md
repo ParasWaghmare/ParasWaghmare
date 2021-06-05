@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ParasWaghmare
-- 👀 I’m geek and tech guy...
+- 👀 I’m in learning new tech...
 
 
 <!---
