@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ParasWaghmare
-- 👀 I’m in learning new tech...
+- 👀 I’m in interested learning new tech...
 
 
 <!---
